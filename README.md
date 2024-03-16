@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DavidIonut
+- 👋 Hi, I’m @NiculescuRares
 - 👀 I’m interested in coding, sport, nature and adventure
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate 
